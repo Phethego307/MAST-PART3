@@ -2,7 +2,7 @@
 
  YouTube link:
 
-https://youtube.com/shorts/ucHbBeUIUlc?si=MR25T5SmSeKZHKU0
+https://youtu.be/QVZlAtFATCU 
 
 
 GitHub link:
