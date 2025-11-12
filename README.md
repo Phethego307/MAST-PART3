@@ -7,7 +7,7 @@ https://youtube.com/shorts/ucHbBeUIUlc?si=MR25T5SmSeKZHKU0
 
 GitHub link:
 
-https://github.com/Phethego307/MAST
+https://github.com/Phethego307/MAST-PART3
 
 Introduction
 
